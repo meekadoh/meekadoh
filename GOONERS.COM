@@ -1,7 +1,1 @@
-- vsause meekadoh here!
-- call me meeka or whtvr im as
-- non binary they/them or he/him
-- non existant attention span
-- sleep deprived podcast RULES!!!
-- STREAM ALEX UNKNOWN N LILAC BOY
-- alr thats all cya gooners
+
